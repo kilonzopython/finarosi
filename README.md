@@ -1,2 +1,0 @@
-# finarosi
-Finarosi Consulting Limited
